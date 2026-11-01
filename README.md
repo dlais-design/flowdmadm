@@ -1,2 +1,0 @@
-# HooperDetroit
-HooperDetroit
